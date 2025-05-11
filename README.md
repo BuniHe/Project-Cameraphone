@@ -1,0 +1,1 @@
+Based around Poco F2 Pro phone, C-mount lens mount bought, but custom trimmed for appropriate back focusing distance. Battery is bought, but an effort is made to fit it all inside a thicker body of a phone.
